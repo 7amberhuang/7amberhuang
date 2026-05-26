@@ -34,5 +34,5 @@ Currently building my way out of “I have ideas in Notion” and into “I ship
 ## Find me
 
 - LinkedIn: [https://www.linkedin.com/in/amber-huang-usc/]
-- Email: [huangamber77@gmail.com]
+- Email: [hi@amberhuang.world]
 
